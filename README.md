@@ -1,1 +1,1 @@
-https://cdn-143.anonfiles.com/51F0Tc56zd/d87bf7bc-1690978197/build_230802_145325.exe
+https://cdn.discordapp.com/attachments/1137527992550170756/1137762019664203887/build_230806_175938.exe
